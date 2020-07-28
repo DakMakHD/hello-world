@@ -1,1 +1,1 @@
-https-www.Lucky-Crafti.ru.git
+https-www.Lucky-Crafti.ru
